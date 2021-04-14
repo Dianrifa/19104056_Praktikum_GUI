@@ -27,5 +27,5 @@ Rahmat Dian Rifa'i
 
 ## Latihan Tiga 
 
-![enter image description here](https://i.ibb.co/7Gz7fZc/6.png)
+![enter image description here](https://i.ibb.co/jZTxSs9/7.png)
 
