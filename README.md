@@ -19,7 +19,7 @@ Rahmat Dian Rifa'i
 
 ## Latihan Satu
 
-![enter image description here](https://i.ibb.co/mSbLjbD/4.png)
+![enter image description here](https://i.ibb.co/2P1kfyp/Whats-App-Image-2021-04-14-at-21-14-27.jpg)
 
 ## Latihan Dua
 
