@@ -29,3 +29,44 @@ Rahmat Dian Rifa'i
 
 ![enter image description here](https://i.ibb.co/jZTxSs9/7.png)
 
+## Latihan Empat
+
+![enter image description here](https://i.ibb.co/D741N8n/4-1.png)
+
+## Latihan Lima
+
+![enter image description here](https://i.ibb.co/jDPXFBH/5-1.png)
+
+## Latiha Enam 
+
+![enter image description here](https://i.ibb.co/vj8vnn2/6.png)
+
+## Latihan Tujuh
+
+![enter image description here](https://i.ibb.co/0KKgdby/7.png)
+
+## Latihan Delapan 
+
+![enter image description here](https://i.ibb.co/nCgpPRW/8.png)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
